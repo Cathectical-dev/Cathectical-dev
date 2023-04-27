@@ -2,4 +2,4 @@
 - 👀 I’m interested in FiveM Scripting & Developing on Roblox
 - 🌱 I’m currently learning Mapping
 - 💞️ I’m looking to collaborate on FiveM
-- 📫 How to reach me Discord: Proest Fox#2563
+- 📫 How to reach me Discord: Dvrk#2563
